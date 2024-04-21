@@ -1,1 +1,0 @@
-# KHUT_Hackathon
